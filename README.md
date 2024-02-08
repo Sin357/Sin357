@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sin357
-- 👀 I’m interested in beautiful ladies,good weed and fo😏
+- 👀 I’m interested in beautiful ladies,good weed and good food 😏
 - 🌱 I’m currently learning how to live in peace 
 - 💞️ I’m looking to collaborate on meeting with new people 
 - 📫 How to reach me 
